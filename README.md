@@ -40,3 +40,28 @@ Having trouble with Pages? Check out our [documentation](https://docs.github.com
 
 ![image-20211102170900977](https://raw.githubusercontent.com/silencelearner/picture_bed/main/image-20211102170900977.png)
 
+
+
+![image-20211102171828200](https://raw.githubusercontent.com/silencelearner/picture_bed/main/image-20211102171828200.png)
+
+![image-20211102171836810](https://raw.githubusercontent.com/silencelearner/picture_bed/main/image-20211102171836810.png)
+
+
+
+
+
+
+
+
+
+
+
+![image-20211102171850623](https://raw.githubusercontent.com/silencelearner/picture_bed/main/image-20211102171850623.png)
+
+
+
+
+
+
+
+
